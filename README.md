@@ -3,7 +3,7 @@
 Hàn Quốc có nhiều cảnh quan và địa điểm đẹp mang đậm chất truyền thống, cổ kính đang chào đón bạn đó !
 
 Xem thêm tại
-https://dulichtutucaz1.blogspot.com/2023/10/nhung-ia-iem-ang-en-nhat-han-quoc.html
+https://dulichtutucaz1.wordpress.com/2023/10/07/nhung-dia-diem-dang-den-nhat-han-quoc/
 
 ![diadiem](https://github.com/Dulichtutucaz/NhungDiaDiemDangDenHanQuoc/assets/147737894/f3cc5525-e904-488a-a7bb-c47d62d60c09)
 
